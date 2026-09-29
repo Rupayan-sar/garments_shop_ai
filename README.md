@@ -1,0 +1,1 @@
+# garments_shop_ai
